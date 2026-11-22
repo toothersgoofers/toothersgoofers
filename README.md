@@ -1,4 +1,4 @@
-<img width="633" height="633" alt="2026_11_22_08s_Kleki" src="https://github.com/user-attachments/assets/1e7a848e-28c4-40b7-8803-5387c72d3ec4" class="center-img"/>
+<img width="633" height="633" alt="img" src="https://github.com/user-attachments/assets/d6add719-84fe-42a7-956c-bfcbfd5df17d" />
 <br>
 <br>
 <a href="https://x.com/home">twt</a>
