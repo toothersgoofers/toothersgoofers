@@ -10,6 +10,9 @@
 <i>♱   read my sp!   𐂯<i>
 <br>
 <br>
+<i></i>c+h/int ok!    pref whisper    always iwc<i>
+<br>
+<br>
 <a href="https://x.com/home">twt</a>
 <br>
 <br>
