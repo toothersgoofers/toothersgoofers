@@ -5,9 +5,7 @@
 <pre>
 ☆󠁪󠁪
 ﹟  enby tmasc les ♱ he · xe · it ㅤ࣭ ㅤׂ 
-<br>
 :   ᯓ  disabled sys  ⊹  punk  !  ﹐
-<br>
 <i>♱   read my sp!   𐂯<i>
 <pre>
 <br>
