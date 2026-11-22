@@ -29,4 +29,7 @@
 <br>
 <br>
 <img width="50" height="50" alt="favicon" src="https://pixelsafari.neocities.org/favicon/horror/coffin2.gif" />
+<br>
+<br>
+<i><sub>Profile made mostly for ponytown</sub><i></i>
 </div>
