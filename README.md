@@ -8,3 +8,6 @@
 <br>
 <br>
 <a href="https://pronouns.cc/@Toothersmcgoofers">prns.cc</a>
+<br>
+<br>
+<a href="https://www.pinterest.com/toothers_goofers/">pinterest</a>
