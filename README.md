@@ -31,5 +31,5 @@
 <img width="50" height="50" alt="favicon" src="https://pixelsafari.neocities.org/favicon/horror/coffin2.gif" />
 <br>
 <br>
-<i><sub>Profile made mostly for ponytown, I don't post code.</sub><i></i>
+<i>Profile made mostly for ponytown, I don't post code.</i>
 </div>
