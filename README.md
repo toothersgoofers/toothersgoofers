@@ -25,4 +25,8 @@
 <br>
 <br>
 <a href="https://www.pinterest.com/toothers_goofers/">pinterest</a>
+<br>
+<br>
+<br>
+<img width="50" height="50" alt="favicon" src="https://pixelsafari.neocities.org/favicon/horror/coffin2.gif" />
 </div>
