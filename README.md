@@ -2,6 +2,12 @@
 <img width="633" height="633" alt="img" src="https://github.com/user-attachments/assets/d6add719-84fe-42a7-956c-bfcbfd5df17d" />
 <br>
 <br>
+☆󠁪󠁪
+﹟  enby tmasc les ♱ he · xe · it ㅤ࣭ ㅤׂ 
+:   ᯓ  disabled sys  ⊹  punk  !  ﹐
+<i>♱   read my sp!   𐂯<i>
+<br>
+<br>
 <a href="https://x.com/home">twt</a>
 <br>
 <br>
